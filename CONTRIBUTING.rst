@@ -1,4 +1,4 @@
-============
+=that is my mobail redminot6 pro gmail every time hack so i am mobail not ususing so solf the problem emergenchi =========== 
 Contributing
 ============
 
